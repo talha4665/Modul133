@@ -1,3 +1,4 @@
+
 # Lern-Bericht
 ✍️ ggf. Ihr Gruppenname und Ihre Gruppenmitglieder
 
